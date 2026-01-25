@@ -29,5 +29,5 @@ socially awkward, barely start interact first. feel free to interact first, whis
 i'm ok with c+h, i don't really care
 </p>
 <p align="center">
-do not interact with me if you're proshipper, under 14 years old, part of shedtwt, or any basic dnis. k thx
+do not interact with me if you're proshipper, under 14 years old, part of shedtwt, or any that fall under basic dnis. k thx
 </p>
